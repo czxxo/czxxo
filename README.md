@@ -1,4 +1,4 @@
-## ``OLA 🍆
+## ``OLA 
 
 ``SOU CZXXO UM ESTUDANTE 🤓
 AMO JOGOS 🎮
